@@ -1,11 +1,12 @@
 Dear aspiring rationalists, effective altruists, and other weird people,
 
-This is the very first draft for the very first "Optimal Week". A week long retreat, to focus on working on your most important projects, whatever they may be (within legal or at least ethical boundaries).
+This is the very first draft for the very first "Optimal Week". A week long retreat in germany, to focus on working on your most important projects, whatever they may be (within legal or at least ethical boundaries).
 
 The rough idea:
 
 One week in a nice and quiet location around the beginning of August
 probably rural, yet easily accessible by public transit, ideally it would be suitable for morning runs, fires, outdoor yoga sessions, etc.
+in germany, probably near Berlin
 15 - 50 participants
 
 You don't need an idea what to work on when you get to the retreat.
