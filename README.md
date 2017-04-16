@@ -19,7 +19,7 @@ We are aware that everyones work habits are different and while some people like
 All of these are fine; however, if you just want to have a fun vacation and hang out with friends, please do that somewhere else.
 There will be entirely optional side activities like: Morning sports, morning planning, yoga, meditation, evening reviews. 
 
-The cost will depend on the location and will include meals and accomodation, presumably it would be around EUR 200 per person.
+The cost will depend on the location and will include meals and accomodation, presumably it would be around EUR 300 per person.
 We might be able to get some financial support from LessWrong Deutschland e.V. to either bring the cost down for everyone, or offer financial aid for participants who have trouble affording it.
 
 There will be more information about cost, location and the explicit date soon.
